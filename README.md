@@ -1,1 +1,1 @@
-# SC
+# SCRIPT BY SARJOZ
